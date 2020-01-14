@@ -1,1 +1,0 @@
-# Richard-Feynapple.github.io
